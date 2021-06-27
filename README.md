@@ -15,4 +15,6 @@ Meet your developers:
 
 Harit Talwar
 
+Hi! My name is Harit Talwar and I am an 
+
 Smriti Wadhwa
